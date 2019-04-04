@@ -1,1 +1,1 @@
-# 5self
+#INI OAKE PYTHON3 YA
